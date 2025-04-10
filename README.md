@@ -1,1 +1,1 @@
-# ume-invite.github.io
+# scudra-invite.github.io
